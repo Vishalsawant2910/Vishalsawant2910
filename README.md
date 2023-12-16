@@ -7,7 +7,7 @@
 
  
 
-- 📄 Know about my experiences [Here](https://drive.google.com/file/d/1i6hk9a4Ot7NTrkjjaXDJUaN6ojgnIML2/view?usp=share_link)
+ 
 
 - 💬 Ask me about **anything on tech.**
 
